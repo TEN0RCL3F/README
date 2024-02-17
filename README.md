@@ -8,8 +8,10 @@ I won't interact with Valentinos as Angel Dust ; otherwise, it's okay, but pleas
 Please feel free to ask me about my OCs! I'll usually be;
 
 - JIGGY CIPHER ; MLP OC
+
 Jiggy is a Unicorn who works for Twilight as the 'royal cryptanalyist', he's a bit of a grouch and sure knows little about friendship, for admiring Twilight so much.
 
 - YEOP BO-REUM "VIENNA" ; HAZBIN HOTEL OC
+
 Vienna is an OC that was created for a HH roleplay with my friends, in which she replaces Valentino after he gets killed. She's leading hell's tourism scene, making a horrible and endless damnation almost- *almost* feel a little special! Queen of gentrification, out of touch with herself, and VERY suspicious of Vox... Velvette is bae tho!
 (AKA, please interact, other Vees!)
