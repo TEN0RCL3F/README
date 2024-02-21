@@ -15,3 +15,7 @@ Jiggy is a Unicorn who works for Twilight as the 'royal cryptanalyist', he's a b
 
 Vienna is an OC that was created for a HH roleplay with my friends, in which she replaces Valentino after he gets killed. She's leading hell's tourism scene, making a horrible and endless damnation almost- *almost* feel a little special! Queen of gentrification, out of touch with herself, and VERY suspicious of Vox... Velvette is bae tho!
 (AKA, please interact, other Vees!)
+
+- MORAETO BETORRO 'BETCH' ELEGOFELOS ; NON-FANDOM OC
+
+The best catboy sailor in all the seven seas, and a very generous chef!
