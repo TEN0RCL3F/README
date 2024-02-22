@@ -5,6 +5,8 @@ I DON'T roleplay, and I am simply cosplaying characters I like.
 I will block or hide freely ; it's rarely anything personal, sometimes I'll just want to hide a conversation I don't wanna see!
 I won't interact with Valentinos as Angel Dust ; otherwise, it's okay, but please don't be weird.
 
+I'm usually tabbed out or just people-watching, if you wanna say something to me, I prefer if you whisper!
+
 Please feel free to ask me about my OCs! I'll usually be;
 
 - JIGGY CIPHER ; MLP OC
